@@ -1,1 +1,0 @@
-# democratische-vereeniging-der-machten
